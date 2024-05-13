@@ -1,0 +1,10 @@
+<div style="display:none;">
+<a href="http://ami.uinsgd.ac.id/js/">http://ami.uinsgd.ac.id/js/</a>
+<a href=https://simona.kemenpora.go.id/assets/cor/">https://simona.kemenpora.go.id/assets/cor/</a>
+<a href=https://executive.budiluhur.ac.id/img/sgacor/">https://executive.budiluhur.ac.id/img/sgacor/</a>
+<a href=https://fateta.ilearn.unand.ac.id/lang/">https://fateta.ilearn.unand.ac.id/lang/</a>
+<a href=https://dlhk.kukarkab.go.id/css/">https://dlhk.kukarkab.go.id/css/</a>
+<a href=https://vesuoviedo.com/">https://vesuoviedo.com/</a>
+<a href=https://kidsacademyvirtual.xeted.com/">https://kidsacademyvirtual.xeted.com/</a>
+<a href=https://crg.spa.msu.ru/sgacor/">https://crg.spa.msu.ru/sgacor/</a>
+</div>
